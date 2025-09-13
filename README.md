@@ -1,0 +1,3 @@
+This is a roblx exploit Hub that uses oxide reanimation and TXTBar to play animations that are in other games using the asset id 
+With the most recent Roblox i am not shure if it does/will work in the near fuctue. 
+I know i have only posted one this about roblox exploits but i am gonna quit with roblox scripts if you do use this well dm me on dc and tell me if t works...
